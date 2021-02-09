@@ -8,4 +8,8 @@ Senior research fellow.
 Management trainee
 substitute teacher
 
+Educational qualification
+
+B.Sc. Agriculture
+MBA (Agribusiness)
 
